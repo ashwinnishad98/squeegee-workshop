@@ -13,6 +13,7 @@
 
 ### Step 1: Patterns using squiggles and dots
 - Begin by taping your paper to the desk. You can use different colors of paint to create random or thought-out patterns on your sheet of paper. 
+- Shake the bottle of paint prior to applying it on your paper, it helps it flow more evenly on to your sheet.
 - Try not to overlap colors as they will combine and turn to a different color. The volume of paint you pour will affect how much it spreads as you squeegee down. 
 - FYI: A large amount of paint may cause your paper to warp as it absorbs the moisture from the paint. Start with small amounts of paint to see how it turns out!
 
