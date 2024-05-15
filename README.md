@@ -9,7 +9,7 @@
 
 ## Steps to create your own abstract art
 
-(Put on some gloves it'll get messy!)
+(Put on some gloves it'll get messy! And try to clean up as you go before the paint dries up.)
 
 ### Step 1: Patterns using squiggles and dots
 - Begin by taping your paper to the desk. You can use different colors of paint to create random or thought-out patterns on your sheet of paper. 
